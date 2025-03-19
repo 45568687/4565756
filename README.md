@@ -1,2 +1,5 @@
-# 4565756
-Güncel Casibom Resmi Girişi | 2025 Casibom
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
